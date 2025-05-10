@@ -31,7 +31,7 @@ The production design in all three films transports the audience into that world
 
 **How the Trilogy Handles Sexuality**
 
-![image](https://github.com/user-attachments/assets/626b8178-0f1a-4831-a08f-5843986206ab)
+![image](https://github.com/user-attachments/assets/5c17c8cf-8a52-4cd5-b354-bf5a46f462f0)
 
 Horror films have rightfully had their fair share of criticism, with the majority of classic horror movies featuring sexism, racism, and not showing an overall real representation of the world. However, more recently, we have seen a growing number of horror films expertly handle such topics, with Fear Street being no exception. Fear Street is praised by the LGBTQ+ community for its accurate representation of a lesbian couple, instead of making the characters' story revolve around sexuality and gaining acceptance. Deena's relationship with her girlfriend, Sam, is built throughout the story. The twist in the film is brilliantly executed, with it bringing up a very important and poignant conversation around sexuality and acceptance, while still being heartbreaking and shocking.
 

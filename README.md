@@ -11,7 +11,7 @@ _This could be right up your street._
 
 **The Compelling and Engaging Story**
 
-![image](https://github.com/user-attachments/assets/a8e1290c-0c25-4d68-a1a1-99ae076ac36f)
+![image](https://github.com/user-attachments/assets/077a7a34-5631-49ed-999f-23372b21b605)
 
 Fear Street's story had viewers hooked from the get-go, telling a story about Salem witches, a summer camp massacre, and a bunch of dead serial killers that rose from the grave to commit more mass murders. After theorizing that the unfortunate town of Shadyside has been plagued by a dark and terrifying curse for hundreds of years, a group of teenagers discovers that the curse is real when witnessing the effects first hand. When one of them is affected by this dreadful curse, the group must work together and stop it. Each installment in the trilogy follows this overall chronological story set in 1994, while at points, jumping back in time to 1978 and 1666 in the two sequels.
 

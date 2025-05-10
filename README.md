@@ -9,7 +9,7 @@ _This could be right up your street._
 
 ![image](https://github.com/user-attachments/assets/f9b0deec-8335-4e49-af4d-ae1327bc51eb)
 
--**The Compelling and Engaging Story**
+-The Compelling and Engaging Story
 
 ![image](https://github.com/user-attachments/assets/dd4afc46-aac7-42eb-8d40-7cb27bd2a29b)
 

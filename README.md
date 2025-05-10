@@ -11,7 +11,6 @@ _This could be right up your street._
 ![image](https://github.com/user-attachments/assets/f9b0deec-8335-4e49-af4d-ae1327bc51eb)
 
 
-
 ## **The Compelling and Engaging Story**
 
 

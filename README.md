@@ -12,7 +12,7 @@ _This could be right up your street._
 
 
 
-**The Compelling and Engaging Story**
+## **The Compelling and Engaging Story**
 
 
 ![image](https://github.com/user-attachments/assets/077a7a34-5631-49ed-999f-23372b21b605)
@@ -23,7 +23,7 @@ The plot of the three slasher films takes a lot of inspiration from iconic horro
 
 
 
-**Taking the Genre Back to its Roots**
+## **Taking the Genre Back to its Roots**
 
 
 ![image](https://github.com/user-attachments/assets/f6140d0d-bf08-4217-942d-a0fb4ac78974)
@@ -32,7 +32,7 @@ One reason the Fear Street films work so well, is because they take the genre ba
 
 
 
-**Authentic Production Design**
+## **Authentic Production Design**
 
 
 ![image](https://github.com/user-attachments/assets/a1f96258-6f4c-41ca-951b-cd474ab51c88)
@@ -41,7 +41,7 @@ The production design in all three films transports the audience into that world
 
 
 
-**How the Trilogy Handles Sexuality**
+## **How the Trilogy Handles Sexuality**
 
 
 ![image](https://github.com/user-attachments/assets/5c17c8cf-8a52-4cd5-b354-bf5a46f462f0)
